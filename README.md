@@ -1,11 +1,10 @@
 # bone
+
 <img width="1200" height="216" alt="image" src="https://github.com/user-attachments/assets/97d632dd-bdf5-48db-97d5-7e1496ebf71e" />
-he him - intj - no romantic int pls !
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+he him       16   ؛༊
 
-16 - idm age gaps as long as you aren't weird
-
-<img width="1170" height="294" alt="image" src="https://github.com/user-attachments/assets/0bd60064-8a8f-4e11-8d23-5082eb9d124a" />
-
-you can primarily find me in safe 2 !
-
-- profile is a wip . .
+﹕                          ⏾               find me on safe 2.
+i don't communicate often, i prefer not to.
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<img width="720" height="355" alt="image" src="https://github.com/user-attachments/assets/9e244503-288e-4445-a680-308e7e6f91dd" />
