@@ -9,4 +9,4 @@ he him    ݁     16݁       ݁    ؛༊
 i don't communicate often, i prefer not to.
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<img width="1198" height="399" alt="image" src="https://github.com/user-attachments/assets/33decd05-ff3d-4808-9d10-4ff8b5c9b4e0" />
+<img width="1100" height="244" alt="image" src="https://github.com/user-attachments/assets/243b864b-09f2-4deb-8349-2861455c749c" />
