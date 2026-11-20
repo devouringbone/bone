@@ -7,4 +7,4 @@ he him       16   ؛༊
 ﹕                          ⏾               find me on safe 2.
 i don't communicate often, i prefer not to.
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<img width="720" height="355" alt="image" src="https://github.com/user-attachments/assets/9e244503-288e-4445-a680-308e7e6f91dd" />
+<img width="1200" height="510" alt="image" src="https://github.com/user-attachments/assets/f4301f92-3a7a-4c10-af11-3b16f59ff35c" />
